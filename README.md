@@ -6,3 +6,4 @@ This is a repository to collect miracles of Al-Qur'an, the holy book Sent By All
 * [Quran Math Miracles](https://www.youtube.com/playlist?list=PLiU47G2ulReebWVECXb1nz2uQi5ihpKOF)
 * [Birmingham Quran manuscript](https://en.wikipedia.org/wiki/Birmingham_Quran_manuscript)
 * [A Buried Ancient City confirms an Amazing Quran Ayah](https://www.youtube.com/watch?v=2oclm0CZ7Vw)
+* [Quran Math Miracles Ep 3: Wow! Shocking Math Destroys All Doubt](https://www.youtube.com/watch?v=CSveh9fk1Oc&list=LL0SvEADxIC0qphr1HrODV-w&index=188)
